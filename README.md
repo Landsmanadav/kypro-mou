@@ -1,2 +1,0 @@
-# Kypru-Mou
-# KyproMou
